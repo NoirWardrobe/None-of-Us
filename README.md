@@ -16,4 +16,4 @@ https://noneofus.store/hoodie/
 # Brand Hub & Profile
 https://sites.google.com/view/chro9/home
 
-https://www.pinterest.com/wafehe3363/
+https://www.pinterest.com/wafehe3363/streetwear-essentials/
