@@ -17,3 +17,5 @@ https://noneofus.store/hoodie/
 https://sites.google.com/view/chro9/home
 
 https://www.pinterest.com/wafehe3363/streetwear-essentials/
+
+https://www.notion.so/NOFS-Official-Store-Premium-Streetwear-for-Modern-Urban-Style-31824df9d4e1809e98e9d686a6a87436
