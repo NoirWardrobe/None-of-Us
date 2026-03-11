@@ -26,6 +26,8 @@ https://www.pinterest.com/wafehe3363/streetwear-essentials/
 
 https://www.notion.so/NOFS-Official-Store-Premium-Streetwear-for-Modern-Urban-Style-31824df9d4e1809e98e9d686a6a87436
 
+https://about.me/trendtheory/getstarted
+
 # Content Platforms
 https://medium.com/@bhaisaad906_63939
 
@@ -41,3 +43,6 @@ https://www.tumblr.com/slylydistanttraitor/810404396372525056/nofs-jogger-street
 https://medium.com/@bhaisaad906_63939/nofs-offizieller-shop-wo-streetwear-auf-authentischen-urbanen-stil-trifft-c27ad4483b17
 
 https://chromeheartsofficial7.blogspot.com/2026/03/none-of-us-trainingsanzug-das.html
+
+# Quora
+https://www.quora.com/profile/Styleinspo
