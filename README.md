@@ -35,6 +35,8 @@ https://www.blogger.com/blog/posts/3833630242510964514
 
 https://mycloset71.wordpress.com/
 
+https://www.tumblr.com/blog/slylydistanttraitor
+
 # Our Latest Articles
 https://mycloset71.wordpress.com/2026/03/05/nofs-hoodie-kollektion-a-modern-streetwear-statement/
 
