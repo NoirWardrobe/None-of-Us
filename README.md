@@ -24,8 +24,6 @@ https://sites.google.com/view/chro9/home
 
 https://www.pinterest.com/wafehe3363/streetwear-essentials/
 
-https://www.notion.so/NOFS-Official-Store-Premium-Streetwear-for-Modern-Urban-Style-31824df9d4e1809e98e9d686a6a87436
-
 https://about.me/trendtheory/getstarted
 
 # Content Platforms
@@ -46,11 +44,17 @@ https://medium.com/@bhaisaad906_63939/nofs-offizieller-shop-wo-streetwear-auf-au
 
 https://chromeheartsofficial7.blogspot.com/2026/03/none-of-us-trainingsanzug-das.html
 
-# Quora
+# Quora & Reddit
 https://www.quora.com/profile/Styleinspo
 
-# Reddit
 https://www.reddit.com/user/Greedy_Lab4059/
+
+# Cloud & Authority Assets 
+
+https://noneofus.carrd.co/
+
+https://www.notion.so/NOFS-Official-Store-Premium-Streetwear-for-Modern-Urban-Style-31824df9d4e1809e98e9d686a6a87436
 
 # Pearltrees Collection
 https://www.pearltrees.com/noneofuscollection/item784913012
+
