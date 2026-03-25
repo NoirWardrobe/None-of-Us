@@ -55,6 +55,8 @@ https://noneofus.carrd.co/
 
 https://www.notion.so/NOFS-Official-Store-Premium-Streetwear-for-Modern-Urban-Style-31824df9d4e1809e98e9d686a6a87436
 
+https://issuu.com/siturettem
+
 # Pearltrees Collection
 https://www.pearltrees.com/noneofuscollection/item784913012
 
