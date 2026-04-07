@@ -44,6 +44,8 @@ https://medium.com/@bhaisaad906_63939/nofs-offizieller-shop-wo-streetwear-auf-au
 
 https://chromeheartsofficial7.blogspot.com/2026/03/none-of-us-trainingsanzug-das.html
 
+https://www.linkedin.com/pulse/none-us-deutschland-streetwear-european-edge-saad-bhai-47gef
+
 # Quora & Reddit
 https://www.quora.com/profile/Styleinspo
 
